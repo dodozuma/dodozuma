@@ -2,6 +2,6 @@
 - 👀 I’m interested in leraning to code
 - 🌱 I’m currently learning javascript,html,css(probably obvious but ok)
 - 💞️ I’m looking to collaborate on nothing yet
-- 📫 How to reach me email/discord(email:falloutplayer422@gmail.com/discord: im_niko_Bellic)
+- 📫 How to reach me email/discord(email:falloutplayer422@gmail.com/discord: _dodozuma_)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im retarded not rlly
